@@ -1,1 +1,0 @@
-# PAMM-Statements
